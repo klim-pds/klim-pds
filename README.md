@@ -15,7 +15,7 @@ O projeto **Voz Feminina** surge como uma resposta urgente às realidades enfren
 
 Reconhecemos que a desigualdade social é um fator crucial que amplifica essas situações de vulnerabilidade, privando muitas mulheres do acesso às informações e recursos necessários para reconhecer e lidar com a violência. Portanto, concentramos nossos esforços em alcançar especialmente aquelas mulheres afetadas por essa desigualdade, que podem estar em áreas marginalizadas ou não ter acesso aos serviços e apoios disponíveis.
 
-##  Autores
+##  Integrantes da KLIM
 
 👤 **Izadora Martins**
 
